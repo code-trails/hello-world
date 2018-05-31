@@ -1,2 +1,2 @@
 # hello-world
-first ideas
+Still near the start of my coding adventure. I'm a keen runner and into all things science.
